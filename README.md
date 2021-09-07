@@ -1,1 +1,0 @@
-https://WareryM.github.io/rsschool-cv/cv
